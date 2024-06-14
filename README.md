@@ -1,1 +1,1 @@
-![https://tenor.com/bwqHy.gif] 
+![](https://media1.tenor.com/m/bmOrikjSbG0AAAAC/cat-galactic.gif)
